@@ -41,7 +41,7 @@ Agradeço à **Dio** pela oportunidade de participar deste bootcamp e por me aju
 ## Contato
 
 
-- [LinkedIn]([https://www.linkedin.com/in/diegoclebson/](https://www.linkedin.com/in/diego-clebson-9a80661b6/))
+- [LinkedIn](https://www.linkedin.com/in/diego-clebson-9a80661b6/)
 
 
 
